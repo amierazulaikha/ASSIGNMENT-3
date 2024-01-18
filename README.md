@@ -1,5 +1,7 @@
 # Reflection on Visit to UTMDigital and the Attended Virtual Talk (2023)
 
+![ASS3](https://github.com/amierazulaikha/ASSIGNMENT-3/assets/148413070/79f2470b-a011-4f69-9aff-abbfbd2f58c1)
+
 ## What I Have Gained 🌐
 During my visit to UTMDigital, I explored the building in depth. Each room serves a specific function, contributing various benefits to the university. Notably, the meeting room is equipped with advanced facilities, including a SMART TV symbolizing collaboration between UTMDigital and HUAWEI. This technology enables seamless meetings and collaborations, even with counterparts outside the country. The innovative setup enhances communication and collaboration, showcasing UTMDigital's commitment to providing state-of-the-art resources for its staff and contributing to a global academic network.
 
